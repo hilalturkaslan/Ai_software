@@ -1,1 +1,1 @@
-Ai software case study
+Ai web app case study
