@@ -1,1 +1,1 @@
-Ai & software done app case study
+for Ai & software done app case study
