@@ -1,1 +1,1 @@
-for Ai & software sample done application case study
+for Ai & software sample do it that application case study
